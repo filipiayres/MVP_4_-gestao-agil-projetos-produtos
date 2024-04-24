@@ -18,6 +18,10 @@ Com o InterEasy, você pode encontrar: Intérpretes Qualificados, contratar int�
 
 
 Links:
+
+Video da apresentação
+https://youtu.be/x--GGCsn-4I
+
 Miro
 https://miro.com/welcomeonboard/NHhQRVdUMTJpeWFPVnlRbzJSb0txQXhiaXJKMzZ6aGRqWUhzUlJ2RlBwa2hOSlp4TU1ZRjRzZlh5ekxEN2F5UXwzMDc0NDU3MzYxODk3MDE3NjYzfDI=?share_link_id=663900376746
 
